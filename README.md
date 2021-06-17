@@ -1,4 +1,4 @@
-### Hi there 👋
+
 
 Hi there! My name is Merissa and I am part of the PSIRT team here at GitHub.
 

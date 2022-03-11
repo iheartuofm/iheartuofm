@@ -2,7 +2,7 @@
 
 Hi there! My name is Merissa and I am part of the PSIRT team here at GitHub.
 
-Outside of working in Technology for the last 11+ years I enjoy the following:
+Outside of working in Technology for the last 12+ years I enjoy the following:
 
 - Traveling 🗺
 - Any/all outdoor activities 🚲

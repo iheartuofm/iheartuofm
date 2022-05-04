@@ -8,8 +8,8 @@ Outside of working in Technology for the last 12+ years I enjoy the following:
 - Any/all outdoor activities 🚲
 - Animal lover 🐕 / :black_cat:
 
-  
-  ![IMG_0335](https://user-images.githubusercontent.com/83090895/122442132-3b1b6200-cf6c-11eb-98e1-7f1f1e063238.JPG)
+  ![Uploading F970262B-4867-4BBD-8E10-37DA0A072C5A.JPG…]()
+
 <!--
 **iheartuofm/iheartuofm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
